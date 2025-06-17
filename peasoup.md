@@ -1,5 +1,5 @@
 # Ingredients
 - pease
-- onions
+- Spring  onions
 - potato
 # Instructions 
